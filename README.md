@@ -1,7 +1,7 @@
 ### 👋 Hi, I’m Prashant Pal
 
 **Creative Technologist | UX/Product Designer | Immersive Media Researcher**  
-🎓 M.Des @ IIT Kanpur · B.Arch @ SPA Delhi · Rongpa Tribe  
+🎓 M.Des @ IIT Kanpur · B.Arch @ SPA Delhi · Rongpa  
 🧠 Designing for cognition, embodiment & future experiences
 
 ---
